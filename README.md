@@ -1,0 +1,1 @@
+# CHAVE-DE-ATIVA-O-do-Windows
